@@ -1,2 +1,0 @@
-# Tabiq-Ahmad-
-Hah
